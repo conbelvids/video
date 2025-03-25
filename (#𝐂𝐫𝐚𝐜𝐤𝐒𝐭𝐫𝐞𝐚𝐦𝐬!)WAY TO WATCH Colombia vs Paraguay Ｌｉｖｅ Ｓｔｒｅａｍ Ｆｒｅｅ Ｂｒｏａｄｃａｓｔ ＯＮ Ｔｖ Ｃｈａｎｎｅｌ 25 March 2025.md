@@ -1,5 +1,9 @@
 The Colombia national football team are all set to take on the Paraguay national football team in match week 14 of the FIFA World Cup 2026 CONMEBOL qualifiers. Los Cafeteros are in sixth place and have seen a significant decline in their form. The visitors are in the fifth spot after decent performances.
 
+[🅻🅸🆅🅴🔴▶️ CLICK HERE TO WATCH LIVE ONLINE](https://ensvivallstreamsportsworld.blogspot.com/)
+
+[🆆🅰🆃🅲🅷🔴▶️ CLICK HERE TO LIVE STREAM](https://ensvivallstreamsportsworld.blogspot.com/)
+
 James Rodriguez and Co. will be at home and will desperately be looking for a win here. The Colombia national football team have won five games in the 13 World Cup qualification games. Only the top six teams will make it to the 2026 FIFA World Cup and they are sitting comfortably in sixth place. Still they will be looking for a win here.
 
 Colombia will be looking to make up for lost form in their World Cup qualification campaign when they take on Paraguay at Estadio Metropolitano on Tuesday.
